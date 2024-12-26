@@ -26,11 +26,12 @@ https://apps.apple.com/tr/app/id6738658075
 
     Mükemmel ismi kolayca keşfedin. Hemen indirin!
     
-<img width="168" height="420" alt="1" src="https://github.com/user-attachments/assets/209efd7c-891b-4030-88aa-65c220e4feab">
-<img width="168" height="420" alt="1" src="https://github.com/user-attachments/assets/1e858598-e9a4-475f-9f11-28dc5f5e7ad5">
-<img width="168" height="420" alt="1" src="https://github.com/user-attachments/assets/df4bb112-b204-495c-acc9-3f5d8b14bcbb">
-<img width="168" height="420" alt="1" src="https://github.com/user-attachments/assets/e31b8d95-2016-4845-9796-2f7984f790e0">
-<img width="168" height="420" alt="1" src="https://github.com/user-attachments/assets/7c93185a-1135-4265-a191-8145ec8d0feb">
+<img width="140" height="350" alt="1" src="https://github.com/user-attachments/assets/209efd7c-891b-4030-88aa-65c220e4feab">
+<img width="140" height="350" alt="1" src="https://github.com/user-attachments/assets/1e858598-e9a4-475f-9f11-28dc5f5e7ad5">
+<img width="140" height="350" alt="1" src="https://github.com/user-attachments/assets/df4bb112-b204-495c-acc9-3f5d8b14bcbb">
+<img width="140" height="350" alt="1" src="https://github.com/user-attachments/assets/e31b8d95-2016-4845-9796-2f7984f790e0">
+<img width="140" height="350" alt="1" src="https://github.com/user-attachments/assets/7c93185a-1135-4265-a191-8145ec8d0feb">
+
 
 The Right Name, The Right Story:
 Choosing a name for your baby or a loved one is now easier and more enjoyable than ever! Explore meanings, origins, and more with our comprehensive name guide app.
@@ -59,8 +60,8 @@ Discover the perfect name with ease. Download now!
 
 https://apps.apple.com/us/app/id6738658075
 
-<img width="168" height="420" alt="1" src="https://github.com/user-attachments/assets/796357fe-a26c-488d-9845-1b32703d0ef5">
-<img width="168" height="420" alt="2" src="https://github.com/user-attachments/assets/807b7159-3886-4dce-8a20-67e7ea31b590">
-<img width="168" height="420" alt="3" src="https://github.com/user-attachments/assets/367cff75-00c3-43c2-90d7-72b72e267f55">
-<img width="168" height="420" alt="4" src="https://github.com/user-attachments/assets/308dce5e-2b55-4eb1-bc72-27ada658239e">
-<img width="168" height="420" alt="5" src="https://github.com/user-attachments/assets/7c25232d-c28b-4284-a5e8-47652528739e">
+<img width="140" height="350" alt="1" src="https://github.com/user-attachments/assets/796357fe-a26c-488d-9845-1b32703d0ef5">
+<img width="140" height="350" alt="2" src="https://github.com/user-attachments/assets/807b7159-3886-4dce-8a20-67e7ea31b590">
+<img width="140" height="350" alt="3" src="https://github.com/user-attachments/assets/367cff75-00c3-43c2-90d7-72b72e267f55">
+<img width="140" height="350" alt="4" src="https://github.com/user-attachments/assets/308dce5e-2b55-4eb1-bc72-27ada658239e">
+<img width="140" height="350" alt="5" src="https://github.com/user-attachments/assets/7c25232d-c28b-4284-a5e8-47652528739e">
